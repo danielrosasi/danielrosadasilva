@@ -13,7 +13,7 @@
 
 - Como chegar até mim **daniel.rosa@multintegrada.com.br**
 
-<h3 align="left">Conecte-se 📫 comigo:</h3><p align="left"></p><h3 align="left">Idiomas e Ferramentas:</h3>
+<h3 align="left">Conecte-se 📫 comigo:**daniel_9153@hotmail.com**</h3><p align="left"></p><h3 align="left">Idiomas e Ferramentas:</h3>
 
 
 
